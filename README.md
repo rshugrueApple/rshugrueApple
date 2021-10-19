@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @rshugrueApple
+- 👀 I’m interested in YOU
+- 🌱 I’m currently learning TOLIVE
+- 💞️ I’m looking to collaborate on WHATCHAGOT
+- 📫 How to reach me ISAGOODQUESTION
